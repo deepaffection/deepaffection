@@ -3,7 +3,7 @@
 
 <p align="center"
 
-![](https://komarev.com/ghpvc/?username=loveoffer&color=808080&label=gotham) <br>
+![](https://komarev.com/ghpvc/?username=peruerer&color=808080&label=gotham) <br>
 <sup>shig</sup> <kbd>she</kbd> <img src="https://enchantments.carrd.co/assets/images/gallery06/b1b181cd.gif?v=976bb919"/>
 </p>
 <p align="center"

@@ -1,7 +1,5 @@
 <br> <br> 
 <p align="center"
-
-<img src="https://komarev.com/ghpvc/?username=peruere&color=808080&style=flat-square&label=gotham&base=13693"> <br>
 <sup>shig</sup> <kbd>she</kbd> <img src="https://enchantments.carrd.co/assets/images/gallery06/b1b181cd.gif?v=976bb919"/>
 </p>
 <p align="center"
@@ -11,7 +9,9 @@
 <br>
 <br>
 <br>
-<br>
+<p align="center"
+
+<img src="https://komarev.com/ghpvc/?username=peruere&color=808080&style=flat-square&label=gotham&base=13693"> <br>
 <br>
 <br>
 <br>

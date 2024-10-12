@@ -1,10 +1,9 @@
 <p align="center"
-<br> <img src="https://i.imgur.com/0sudYco.png"/> <br>
+<br> <img src="https://i.imgur.com/UyA8Uyn.png"/> <br>
 <p align="center"
 
-<img src="https://komarev.com/ghpvc/?username=peruere&color=808080&style=flat-square&label=gotham&base=13693"><br><sup>shig</sup> <kbd>she</kbd> <img src="https://enchantments.carrd.co/assets/images/gallery06/b1b181cd.gif?v=976bb919"/><br><br><sup> [![](https://i.imgur.com/iV4eJ4M.png)](https://planetlord.atabook.org) -- [![](https://i.imgur.com/vQvMq4O.png)](https://rentry.co/s--v) -- [![](https://i.imgur.com/TvGpwtB.png)](https://rentry.co/s--vcopiers) -- [![](https://i.imgur.com/LFiNZbH.png)](https://rentry.co/howtotint) <br>   [![](https://i.imgur.com/OqqbmIp.png)](https://rentry.co/shadowhedgehog) [![](https://i.imgur.com/HdppkUs.png)](https://rentry.co/-planetlord) [![](https://i.imgur.com/ZYKBuV3.png)](https://rentry.co/armiabiseksow) [![](https://i.imgur.com/i87t3vO.png)](https://rentry.co/lesbianphobia)  </sup>
+<img src="https://komarev.com/ghpvc/?username=peruere&color=808080&style=flat-square&label=gotham&base=13693"> <br> [![](https://i.imgur.com/iV4eJ4M.png)](https://planetlord.atabook.org) -- [![](https://i.imgur.com/vQvMq4O.png)](https://rentry.co/s--v) -- [![](https://i.imgur.com/TvGpwtB.png)](https://rentry.co/s--vcopiers) -- [![](https://i.imgur.com/LFiNZbH.png)]
  <p align="center">
-<img src="https://i.imgur.com/3V78CMd.png"/>
+<img src="https://i.imgur.com/vZZLbLT.png"/>
 
-***
-<br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br>
+

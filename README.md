@@ -1,6 +1,6 @@
 
 
-<img src="https://komarev.com/ghpvc/?username=peruere&color=808080&style=flat-square&label=gotham&base=13693"> ⠀ ⠀ ⠀ —⠀ ⠀ ⠀ #PRETTY SKIN PRIVILEGE.⠀ ⠀ ⠀#PONY TOWN POPULAR ⠀ ⠀ ⠀<br>
+<img src="https://komarev.com/ghpvc/?username=peruere&color=808080&style=flat-square&label=gotham&base=13693"> ⠀ ⠀ ⠀ —⠀ ⠀ ⠀ CUDDLES are fine HIT me up any day⠀ ⠀ ⠀<br>
  <p align="center"> 
 
 https://github.com/user-attachments/assets/00f032ad-cf64-41b6-ac6d-14cc8f528852

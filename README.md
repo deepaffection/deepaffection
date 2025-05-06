@@ -1,9 +1,26 @@
+<br>
+ㅤ
+<br>
+ㅤ
+<br>
+ㅤ
+<br>
+ㅤ
+<br>
+ㅤ
+<br>
 
 
-<img src="https://komarev.com/ghpvc/?username=peruere&color=5C5C5C&style=flat-square&label=ㅤㅤdeathnoteㅤvictimㅤcountㅤㅤ&base=13693">  ABC TO BE ON MY DEATHNOTE! <br>
- <p align="center"> 
+<img src="https://komarev.com/ghpvc/?username=peruere&color=5C5C5C&style=flat-square&label=ㅤㅤdeathnoteㅤvictimㅤcountㅤㅤ&base=13693">  
 
-![Untitled145_20250505184459](https://github.com/user-attachments/assets/5c7f363f-0122-4b36-b73a-fd457b494ee8)
-
-https://github.com/user-attachments/assets/e2b32bdd-edff-4243-9828-ac29b4d93f01
-
+<br>
+ㅤ
+<br>
+ㅤ
+<br>
+ㅤ
+<br>
+ㅤ
+<br>
+ㅤ
+<br>

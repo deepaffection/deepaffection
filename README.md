@@ -9,7 +9,7 @@
 <br>
 
 <img src="https://komarev.com/ghpvc/?username=peruere&color=5C5C5C&style=flat-square&label=ㅤㅤdeathnoteㅤvictimㅤcountㅤㅤ&base=13693">
-( 124,925 - 269,889 people )
+( around 279,032 people )
 <br>
 ⠀⠀⠀⠀ <br> ⠀⠀⠀⠀ <br> ⠀⠀⠀⠀ <br> ⠀⠀⠀⠀ <br> ⠀⠀⠀⠀ <br> ⠀⠀⠀⠀ <br> ⠀⠀⠀⠀ <br> ⠀⠀⠀⠀ <br> ⠀⠀⠀⠀ <br> ⠀⠀⠀⠀ <br>⠀⠀⠀⠀ <br> ⠀⠀⠀⠀ <br> ⠀⠀⠀⠀ <br> ⠀⠀⠀⠀ <br> ⠀⠀⠀⠀ <br> ⠀⠀⠀⠀ <br> ⠀⠀⠀⠀ <br> 
 ⠀⠀⠀⠀ <br> ⠀⠀⠀⠀ <br> ⠀⠀⠀⠀ <br> ⠀⠀⠀⠀ <br> ⠀⠀⠀⠀ <br> ⠀⠀⠀⠀ <br> ⠀⠀⠀⠀ <br> ⠀⠀⠀⠀ <br> ⠀⠀⠀⠀ <br> ⠀⠀⠀⠀ <br>⠀⠀⠀⠀ <br> ⠀⠀⠀⠀ <br> ⠀⠀⠀⠀ <br> ⠀⠀⠀⠀ <br> ⠀⠀⠀⠀ <br> ⠀⠀⠀⠀ <br> ⠀⠀⠀⠀ <br>  ⠀⠀⠀⠀ <br> ⠀⠀⠀⠀ <br> ⠀⠀⠀⠀ <br> 

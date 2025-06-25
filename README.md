@@ -4,7 +4,7 @@
 ⠀⠀⠀⠀ <br>
 
 https://yagami.atabook.org/ sign ❀ܓ(｡◠ ꇴ ◠｡ ) 
-⠀⠀Rocking @pt-awards & mythical at https://rentry.co/github-tierlist
+⠀⠀Rocking [@pt-awards](https://github.com/pt-awards) & mythical at [rentry.co/github-tierlist](https://rentry.co/github-tierlist)
 <br>
 ⠀⠀⠀⠀ <br> ⠀⠀⠀⠀ <br> ⠀⠀⠀⠀ <br> ⠀⠀⠀⠀ <br> ⠀⠀⠀⠀ <br> ⠀⠀⠀⠀ <br> ⠀⠀⠀⠀ <br> ⠀⠀⠀⠀ <br> ⠀⠀⠀⠀ <br> ⠀⠀⠀⠀ <br>⠀⠀⠀⠀ <br> ⠀⠀⠀⠀ <br> ⠀⠀⠀⠀ <br> ⠀⠀⠀⠀ <br> ⠀⠀⠀⠀ <br> ⠀⠀⠀⠀ <br> ⠀⠀⠀⠀ <br> 
 ⠀⠀⠀⠀ <br> ⠀⠀⠀⠀ <br> ⠀⠀⠀⠀ <br> ⠀⠀⠀⠀ <br> ⠀⠀⠀⠀ <br> ⠀⠀⠀⠀ <br> ⠀⠀⠀⠀ <br> ⠀⠀⠀⠀ <br> ⠀⠀⠀⠀ <br> ⠀⠀⠀⠀ <br>⠀⠀⠀⠀ <br> ⠀⠀⠀⠀ <br> ⠀⠀⠀⠀ <br> ⠀⠀⠀⠀ <br> ⠀⠀⠀⠀ <br> ⠀⠀⠀⠀ <br> ⠀⠀⠀⠀ <br>  ⠀⠀⠀⠀ <br> ⠀⠀⠀⠀ <br> ⠀⠀⠀⠀ <br> 

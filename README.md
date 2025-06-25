@@ -5,7 +5,7 @@
 
 sign my [atabook](https://yagami.atabook.org/) ❀ܓ(｡◠ ꇴ ◠｡ ) <br>
 ⠀⠀Rocking [@pt-awards](https://github.com/pt-awards) & mythical at [rentry.co/github-tierlist](https://rentry.co/github-tierlist) <br>
-[r/PonyTown](https://www.reddit.com/r/PonyTown/)s biggest opp ( they hate me )
+[r/PonyTown](https://www.reddit.com/r/PonyTown/)s biggest opp ( they hate me ) & reason they invented 'pretty skin privilage'
 <br>
 ⠀⠀⠀⠀ <br> ⠀⠀⠀⠀ <br> ⠀⠀⠀⠀ <br> ⠀⠀⠀⠀ <br> ⠀⠀⠀⠀ <br> ⠀⠀⠀⠀ <br> ⠀⠀⠀⠀ <br> ⠀⠀⠀⠀ <br> ⠀⠀⠀⠀ <br> ⠀⠀⠀⠀ <br>⠀⠀⠀⠀ <br> ⠀⠀⠀⠀ <br> ⠀⠀⠀⠀ <br> ⠀⠀⠀⠀ <br> ⠀⠀⠀⠀ <br> ⠀⠀⠀⠀ <br> ⠀⠀⠀⠀ <br> 
 ⠀⠀⠀⠀ <br> ⠀⠀⠀⠀ <br> ⠀⠀⠀⠀ <br> ⠀⠀⠀⠀ <br> ⠀⠀⠀⠀ <br> ⠀⠀⠀⠀ <br> ⠀⠀⠀⠀ <br> ⠀⠀⠀⠀ <br> ⠀⠀⠀⠀ <br> ⠀⠀⠀⠀ <br>⠀⠀⠀⠀ <br> ⠀⠀⠀⠀ <br> ⠀⠀⠀⠀ <br> ⠀⠀⠀⠀ <br> ⠀⠀⠀⠀ <br> ⠀⠀⠀⠀ <br> ⠀⠀⠀⠀ <br>  ⠀⠀⠀⠀ <br> ⠀⠀⠀⠀ <br> ⠀⠀⠀⠀ <br> 

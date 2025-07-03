@@ -12,7 +12,7 @@
 ( Mudskippers (fish on right) like to roll in mud )
 <br>
 <br>
-![](https://github.com/user-attachments/assets/f67f4cd9-0f38-478c-b510-27b88360ecbe)
+
 ⠀⠀⠀⠀ <br> ⠀⠀⠀⠀ <br> ⠀⠀⠀⠀ <br> ⠀⠀⠀⠀ <br> ⠀⠀⠀⠀ <br> ⠀⠀⠀⠀ <br> ⠀⠀⠀⠀ <br> ⠀⠀⠀⠀ <br> ⠀⠀⠀⠀ <br> ⠀⠀⠀⠀ <br>⠀⠀⠀⠀ <br> ⠀⠀⠀⠀ <br> ⠀⠀⠀⠀ <br> ⠀⠀⠀⠀ <br> ⠀⠀⠀⠀ <br> ⠀⠀⠀⠀ <br> ⠀⠀⠀⠀ <br> 
 ⠀⠀⠀⠀ <br> ⠀⠀⠀⠀ <br> ⠀⠀⠀⠀ <br> ⠀⠀⠀⠀ <br> ⠀⠀⠀⠀ <br> ⠀⠀⠀⠀ <br> ⠀⠀⠀⠀ <br> ⠀⠀⠀⠀ <br> ⠀⠀⠀⠀ <br> ⠀⠀⠀⠀ <br>⠀⠀⠀⠀ <br> ⠀⠀⠀⠀ <br> ⠀⠀⠀⠀ <br> ⠀⠀⠀⠀ <br> ⠀⠀⠀⠀ <br> ⠀⠀⠀⠀ <br> ⠀⠀⠀⠀ 
 

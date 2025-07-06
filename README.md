@@ -10,6 +10,7 @@
 
 <img src="https://komarev.com/ghpvc/?username=peruere&color=5C5C5C&style=flat-square&label=ㅤㅤdeathnoteㅤvictimㅤcountㅤㅤ&base=13693"> . 　⁺ 　 . ✦ <br>
 ( Mudskippers (fish on right) like to roll in mud )
+<br> im turning 17 be normal if ur below 15 
 <br>
 <br>
 

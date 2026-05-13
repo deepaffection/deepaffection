@@ -13,7 +13,7 @@
 <a href="https://rentry.co/17aug"><img src="https://github.com/user-attachments/assets/fda957fc-4583-4510-bad7-7694c497921c" width="123" height="auto"/></a>  <a href="https://rentry.co/sonichedgehog"><img src="https://github.com/user-attachments/assets/009950d1-fad6-40b7-a9d6-86551519ed24" width="123" height="auto"/></a>
 <br><br>
 <img src="https://komarev.com/ghpvc/?username=peruere&color=5C5C5C&style=flat-square&label=⠀POPULATION⠀&base=13693"> ⠀⠀⠀⠀⠀ ⠀⠀⠀ ⠀⠀⠀<img src="https://github.com/user-attachments/assets/acde22eb-adcd-4741-a08b-f669d4d09e3d" width="10" height="auto" title="Ponytown Award" />
-
+decor by malewife@tojifg
 </h5>
  
 

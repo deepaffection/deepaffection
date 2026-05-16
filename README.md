@@ -1,4 +1,3 @@
-![](https://files.catbox.moe/5ekexw.png)
 
 
 

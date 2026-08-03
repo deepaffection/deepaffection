@@ -1,4 +1,4 @@
-ponytown help rentries you can check out *and i made : [PT ACCESSORIES](https://rentry.co/ptaccessories) [HOW TO TINT](https://rentry.co/howtotint) [PT SKIN GUIDE](https://rentry.co/ptskinguide)<br> <br>
+ponytown help rentries you can check out *and i made : [ACCESSORIES](https://rentry.co/ptaccessories) [HOW TO TINT](https://rentry.co/howtotint) [SKIN GUIDE](https://rentry.co/ptskinguide)<br> <br>
 Won 7 Parasocial wars 👍<br>
 as of august 3rd id like to request to do not include me on these (award) accounts anymore! <br>
 Simple boundary, thank you!

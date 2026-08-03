@@ -1,6 +1,6 @@
 https://rentry.co/ptaccessories <br>
-Won 7 Parasocial wars 👍
-as of august 3rd id like to request to do not include me on these (award) accounts anymore! 
+Won 7 Parasocial wars 👍<br>
+as of august 3rd id like to request to do not include me on these (award) accounts anymore! <br>
 Simple boundary, thank you!
 
 me and my date [@germanstare](https://github.com/germanstare)

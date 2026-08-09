@@ -1,4 +1,4 @@
-<img width="556" height="447" alt="Screenshot 2026-08-10 000818" src="https://github.com/user-attachments/assets/b482e2b5-bc52-48bf-830d-21994d12a000" />
+
 ponytown help rentries you can check out *and i made : [ACCESSORIES](https://rentry.co/ptaccessories) [HOW TO TINT](https://rentry.co/howtotint) [SKIN GUIDE](https://rentry.co/ptskinguide)<br> <br>
 Won 7 Parasocial wars 👍<br>
 as of august 3rd id like to request to do not include me on these (award) accounts anymore! <br>

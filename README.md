@@ -1,6 +1,6 @@
 <div align="center">
   
-[MAIN RENTRY ](https://rentry.co/TWOROOks) [LOVE MAIL](https://rentry.co/loveoffer) [MATCH](https://rentry.co/aug17)
+[MAIN RENTRY ](https://rentry.co/TWOROOks) [LOVE MAIL](https://rentry.co/loveoffer) [MATCH](https://rentry.co/17aug)
 <br>  
   <table>
     <tr>

@@ -1,14 +1,5 @@
 <div align="center">
   
-[MAIN RENTRY ](https://rentry.co/TWOROOks) [LOVE MAIL](https://rentry.co/loveoffer) [MATCH](https://rentry.co/17aug)
-<br>  
-  <table>
-    <tr>
-      <td>
-${\textsf{ 🦴 }}$
-
-</table>
-
 [ACCESSORIES](https://rentry.co/ptaccessories) [HOW TO TINT](https://rentry.co/howtotint) [SKIN GUIDE](https://rentry.co/ptskinguide)<br> <br>
 
 hi [@germanstare](https://github.com/germanstare/) ^p^ <br>

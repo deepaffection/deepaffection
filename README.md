@@ -3,8 +3,6 @@
 
 
 
-  [![](https://file.garden/agWjfQyLHz7P5oua/ezgif-7c4a166f78e48ec4.gif)](https://deathnote.atabook.org/) <br>
-
 <img src="https://komarev.com/ghpvc/?username=peruere&color=5C5C5C&style=flat-square&label=⠀POPULATION⠀&base=13693">
 
 ![](https://file.garden/agWjfQyLHz7P5oua/3dgifmaker44926%20(1).gif)

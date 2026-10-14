@@ -1,4 +1,4 @@
-@rerir @germanstare @blackbetta @cfluixon @Iove-birds @wingsofdesire @robinspins @fleshburn @wubism @tirgery123 @100bottlesofglue @orcapaint @sourweevil @horroryaoi @WHATSUR-ALIBI @gojirr @nezoshokii @fuziyamas @methodreal @antlerqueen @flankeee @chick-habit @copperbottoms ₍ᵔ.˛.ᵔ₎  <br> remaking sooon  sosos
+@rerir @germanstare @blackbetta @cfluixon @Iove-birds @wingsofdesire @robinspins @fleshburn @wubism @tirgery123 @100bottlesofglue @orcapaint @sourweevil @horroryaoi @WHATSUR-ALIBI @gojirr @nezoshokii @fuziyamas @methodreal @antlerqueen @flankeee @chick-habit @copperbottoms  <br> remaking sooon  sosos
 
 
 
@@ -21,3 +21,15 @@ ${\space {\color{#da4e50} \space  }}$ </summary><br>
 
 ⠀⠀ 
 <br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br>
+
+
+<details>
+  <summary> .co/tworooks </>
+⠀</summary>
+  <table align="center"><caption>
+    <tr><td align="center">
+   <p align="center">
+　　　　　　　　　　　　<br> [@rerir](rerir)
+            </p>
+    </td></tr></caption></table>
+  </details>

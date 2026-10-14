@@ -29,7 +29,8 @@ ${\space {\color{#da4e50} \space  }}$ </summary><br>
   <table align="center"><caption>
     <tr><td align="center">
    <p align="center"> <br> ask 2b added <br>
-[@rerir](https://github.com/rerir), [@germanstare](https://github.com/germanstare), [@blackbetta](https://github.com/blackbetta), [@cfluixon](https://github.com/cfluixon)
+[@rerir](https://github.com/rerir) , [@germanstare](https://github.com/germanstare) , [@blackbetta](https://github.com/blackbetta) , [@cfluixon](https://github.com/cfluixon)
+     <br>
             </p>
     </td></tr></caption></table>
   </details>

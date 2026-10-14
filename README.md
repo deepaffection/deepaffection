@@ -14,13 +14,15 @@
 ⠀</summary>
   <table align="center"><caption>
     <tr><td align="center">
-   <p align="center"> <br> ask 2b added 
+   <p align="center"> 
      
+[@vitriolicred](https://github.com/vitriolicred) (♡ ᴗ͈ˬᴗ͈) <br> ask 2b added <br> <br>
 [@rerir](https://github.com/rerir) [@germanstare](https://github.com/germanstare) [@blackbetta](https://github.com/blackbetta) [@cfluixon](https://github.com/cfluixon) [@love-birds](https://github.com/iove-birds) <br> 
 @wubism @horroryaoi @100bottlesofglue @nezoshokii <br>
 @WHATSUR-ALIBI @fuziyamas @gojirr @wingsofdesire <br>
 @robinspins @antlerqueen @tirgery123 @sourweevil <br>
 @flankeee @chick-habit @orcapaint @copperbottoms <br>
+@freakedoutboy @disorderlyfashion
      <br>
             </p>
     </td></tr></caption></table>

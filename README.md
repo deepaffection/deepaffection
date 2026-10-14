@@ -16,7 +16,7 @@
     <tr><td align="center">
    <p align="center"> 
      
-[@vitriolicred](https://github.com/vitriolicred) (♡ ᴗ͈ˬᴗ͈) <br> ask 2b added <br> <br>
+[@rerir](https://github.com/rerir) [@vitriolicred](https://github.com/vitriolicred) ♡ <br> ask 2b added <br> <br>
 [@rerir](https://github.com/rerir) [@germanstare](https://github.com/germanstare) [@blackbetta](https://github.com/blackbetta) [@cfluixon](https://github.com/cfluixon) [@love-birds](https://github.com/iove-birds) <br> 
 @wubism @horroryaoi @100bottlesofglue @nezoshokii <br>
 @WHATSUR-ALIBI @fuziyamas @gojirr @wingsofdesire <br>

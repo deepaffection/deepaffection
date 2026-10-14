@@ -29,7 +29,9 @@ ${\space {\color{#da4e50} \space  }}$ </summary><br>
   <table align="center"><caption>
     <tr><td align="center">
    <p align="center">
-　　　　　　　　　　　　<br> [@rerir](rerir)
+
+[@rerir](https://github.com/rerir)
+
             </p>
     </td></tr></caption></table>
   </details>

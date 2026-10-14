@@ -1,4 +1,4 @@
-@rerir @germanstare @blackbetta @cfluixon @Iove-birds @wingsofdesire @robinspins @fleshburn @wubism @tirgery123 @100bottlesofglue @orcapaint @sourweevil @horroryaoi @WHATSUR-ALIBI @gojirr @nezoshokii @fuziyamas @methodreal @antlerqueen @flankeee @chick-habit ₍ᵔ.˛.ᵔ₎  <br> remaking sooon  sosos
+@rerir @germanstare @blackbetta @cfluixon @Iove-birds @wingsofdesire @robinspins @fleshburn @wubism @tirgery123 @100bottlesofglue @orcapaint @sourweevil @horroryaoi @WHATSUR-ALIBI @gojirr @nezoshokii @fuziyamas @methodreal @antlerqueen @flankeee @chick-habit @copperbottoms ₍ᵔ.˛.ᵔ₎  <br> remaking sooon  sosos
 
 
 

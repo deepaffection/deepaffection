@@ -1,4 +1,4 @@
-@rerir @germanstare @blackbetta @cfluixon @Iove-birds @wingsofdesire @robinspins @fleshburn @wubism @tirgery123 @100bottlesofglue @orcapaint @sourweevil @horroryaoi @WHATSUR-ALIBI @gojirr @nezoshokii @fuziyamas @methodreal @antlerqueen @flankeee @chick-habit @copperbottoms  <br> remaking sooon  sosos
+@wingsofdesire @robinspins @fleshburn @wubism @tirgery123 @100bottlesofglue @orcapaint @sourweevil @horroryaoi @WHATSUR-ALIBI @gojirr @nezoshokii @fuziyamas @methodreal @antlerqueen @flankeee @chick-habit @copperbottoms  <br> remaking sooon  sosos
 
 
 
@@ -28,8 +28,9 @@ ${\space {\color{#da4e50} \space  }}$ </summary><br>
 ⠀</summary>
   <table align="center"><caption>
     <tr><td align="center">
-   <p align="center"> ask 2b added <br> <br>
-[@rerir](https://github.com/rerir)
+   <p align="center"> <br> ask 2b added 
+     
+[@rerir](https://github.com/rerir) [@germanstare](https://github.com/germanstare) [@blackbetta](https://github.com/blackbetta) [@cfluixon](https://github.com/cfluixon) [@love-birds](https://github.com/iove-birds) 
      <br>
             </p>
     </td></tr></caption></table>

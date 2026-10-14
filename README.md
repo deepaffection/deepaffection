@@ -31,7 +31,6 @@ ${\space {\color{#da4e50} \space  }}$ </summary><br>
    <p align="center">
 
 [@rerir](https://github.com/rerir)
-
             </p>
     </td></tr></caption></table>
   </details>

@@ -10,7 +10,7 @@
 <img src="https://komarev.com/ghpvc/?username=peruere&color=5C5C5C&style=flat-square&label=⠀POPULATION⠀&base=13693">
 
 <details>
-  <summary> .co/tworooks </>
+  <summary> extend 4 friends </>
 ⠀</summary>
   <table align="center"><caption>
     <tr><td align="center">

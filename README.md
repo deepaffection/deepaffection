@@ -28,9 +28,8 @@ ${\space {\color{#da4e50} \space  }}$ </summary><br>
 ⠀</summary>
   <table align="center"><caption>
     <tr><td align="center">
-   <p align="center">
-
-[@rerir](https://github.com/rerir)
+   <p align="center"> <br> ask 2b added <br>
+[@rerir](https://github.com/rerir), [@germanstare](https://github.com/germanstare), [@blackbetta](https://github.com/blackbetta), [@cfluixon](https://github.com/cfluixon)
             </p>
     </td></tr></caption></table>
   </details>

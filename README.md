@@ -1,7 +1,7 @@
  <br>
 
 riddle me this riddle me that ill fix this readme later im tired <br>
-fyi i befriend anyone, idc what drama u have with the other person, keep me out of it <br>
+fyi i befriend anyone, idc what drama u have with the other person as longest as it doesnt directly involve me <br>
 <br><br><br><br>
 
 

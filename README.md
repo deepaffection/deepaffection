@@ -24,8 +24,8 @@ https://github.com/user-attachments/assets/701da098-a36d-4908-ac9e-658cf15fc149
 <img src="https://komarev.com/ghpvc/?username=peruere&color=5C5C5C&style=flat-square&label=⠀POPULATION⠀&base=13693">
 
 <details>
-  <summary>　　    (>⸝⸝⸝0˶)?!
-⠀</summary>
+  <summary>　　⠀   ⠀ (>⸝⸝⸝0˶)?!
+</summary>
   <table align="center"><caption>
     <tr><td align="center">
    <p align="center"> 

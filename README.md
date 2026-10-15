@@ -53,7 +53,9 @@
   <a href="https://github.com/ywuamii"><img src="https://img.shields.io/badge/@ywuamii-rgba(0,0,0,0)?style=flat-square" /></a>
   <a href="https://github.com/edenscram"><img src="https://img.shields.io/badge/@edenscram-rgba(0,0,0,0)?style=flat-square" /></a> <br>
   <a href="https://github.com/methodreal"><img src="https://img.shields.io/badge/@methodreal-rgba(0,0,0,0)?style=flat-square" /></a>
-  <a href="https://github.com/yaoiliker"><img src="https://img.shields.io/badge/@yaoiliker-rgba(0,0,0,0)?style=flat-square" /></a>
+  <a href="https://github.com/yaoiliker"><img src="https://img.shields.io/badge/@yaoiliker-rgba(0,0,0,0)?style=flat-square" /></a> <br>
+
+ awards ive been put on against my will
 </p>
             </p>
     </td></tr></caption></table>

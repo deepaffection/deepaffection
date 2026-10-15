@@ -1,6 +1,8 @@
  <br>
 
-riddle me this riddle me that ill fix this readme later im tired 
+riddle me this riddle me that ill fix this readme later im tired <br>
+fyi i befriend anyone, idc what drama u have with the other person, keep me out of it <br>
+i befriend people & majority of the time i dont check githubs, be understanding at my lack of care 
 <br><br><br><br>
 
 

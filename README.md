@@ -59,6 +59,7 @@
 <a href="https://github.com/pt-awards"><img src="https://img.shields.io/badge/@pt--awards-rgba(0,0,0,0)?style=flat-square&labelColor=rgba(0,0,0,0)&color=rgba(0,0,0,0)" /></a>
 <a href="https://github.com/pt-playerss"><img src="https://img.shields.io/badge/@pt--players-rgba(0,0,0,0)?style=flat-square&labelColor=rgba(0,0,0,0)&color=rgba(0,0,0,0)" /></a>
 <a href="https://rentry.co/github-tierlist"><img src="https://img.shields.io/badge/@github-tierlist-rgba(0,0,0,0)?style=flat-square&labelColor=rgba(0,0,0,0)&color=rgba(0,0,0,0)" /></a>
+<a href="https://github.com/pt-walk-of-fame"><img src="https://img.shields.io/badge/@pt-walk-of-fame-s-rgba(0,0,0,0)?style=flat-square&labelColor=rgba(0,0,0,0)&color=rgba(0,0,0,0)" /></a>
 </p>
             </p>
     </td></tr></caption></table>

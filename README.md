@@ -53,7 +53,7 @@ riddle me this riddle me that ill fix this readme later im tired
   <a href="https://github.com/ywuamii"><img src="https://img.shields.io/badge/@ywuamii-rgba(0,0,0,0)?style=flat-square" /></a>
   <a href="https://github.com/edenscram"><img src="https://img.shields.io/badge/@edenscram-rgba(0,0,0,0)?style=flat-square" /></a> <br>
   <a href="https://github.com/methodreal"><img src="https://img.shields.io/badge/@methodreal-rgba(0,0,0,0)?style=flat-square" /></a>
-  <a href="https://github.com/yaoiliker"><img src="https://img.shields.io/badge/@yaoiliker-rgba(0,0,0,0)?style=flat-square" /></a> <br>
+  <a href="https://github.com/yaoiliker"><img src="https://img.shields.io/badge/@yaoiliker-rgba(0,0,0,0)?style=flat-square" /></a> 
  <a href="https://github.com/15chuu"><img src="https://img.shields.io/badge/@15chuu-rgba(0,0,0,0)?style=flat-square" /></a> <br>
 
 

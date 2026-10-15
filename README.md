@@ -1,15 +1,3 @@
-
-me and the gang vibing to pregnant falsity song  <br>
-
-
-https://github.com/user-attachments/assets/701da098-a36d-4908-ac9e-658cf15fc149
-
-
-
-
-
-
-
  <br>
 
 
@@ -24,7 +12,13 @@ https://github.com/user-attachments/assets/701da098-a36d-4908-ac9e-658cf15fc149
 <img src="https://komarev.com/ghpvc/?username=peruere&color=5C5C5C&style=flat-square&label=⠀POPULATION⠀&base=13693">
 
 <details>
-  <summary>　　⠀  ⠀ (>⸝⸝⸝0˶)?!
+  <summary> 
+   
+[![Typing SVG](https://typingsvg.vercel.app/api/svg?width=300&height=50&pause=70000&backgroundOpacity=0&cursorStyle=underline&lines=%5B%7B%22text%22%3A%22niko%E2%A0%80he%E2%A0%80%21++sign+my+atabook++%21%E2%97%9D%28%E1%B5%94%E1%97%9C%E1%B5%94%29%E2%97%9C%5Cnclick+%27+%E2%96%B6+%27+above+for+%40%27s%22%2C%22font%22%3A%22monospace%22%2C%22color%22%3A%22%23ffffff%22%2C%22fontSize%22%3A12%2C%22typingSpeed%22%3A0.1111111111111111%2C%22fontWeight%22%3A%22bold%22%7D%5D)](https://github.com/whiteSHADOW1234/TypingSVG)
+
+  </a>
+</p>
+   
 </summary>
   <table align="center"><caption>
     <tr><td align="center">

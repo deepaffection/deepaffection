@@ -55,6 +55,7 @@ fyi i befriend anyone, idc what drama u have with the other person as longest as
   <a href="https://github.com/edenscram"><img src="https://img.shields.io/badge/@edenscram-rgba(0,0,0,0)?style=flat-square" /></a> <br>
   <a href="https://github.com/methodreal"><img src="https://img.shields.io/badge/@methodreal-rgba(0,0,0,0)?style=flat-square" /></a>
   <a href="https://github.com/yaoiliker"><img src="https://img.shields.io/badge/@yaoiliker-rgba(0,0,0,0)?style=flat-square" /></a> 
+   <a href="https://github.com/eddisode"><img src="https://img.shields.io/badge/@eddisode-rgba(0,0,0,0)?style=flat-square" /></a> 
  <a href="https://github.com/15chuu"><img src="https://img.shields.io/badge/@15chuu-rgba(0,0,0,0)?style=flat-square" /></a> <br>
 
 

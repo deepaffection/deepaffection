@@ -48,7 +48,7 @@ fyi i befriend anyone, idc what drama u have with the other person as longest as
   <a href="https://github.com/flankeee"><img src="https://img.shields.io/badge/@flankeee-rgba(0,0,0,0)?style=flat-square" /></a>
   <a href="https://github.com/chick-habit"><img src="https://img.shields.io/badge/@chick--habit-rgba(0,0,0,0)?style=flat-square" /></a>
   <a href="https://github.com/orcapaint"><img src="https://img.shields.io/badge/@orcapaint-rgba(0,0,0,0)?style=flat-square" /></a>
-  <a href="https://github.com/copperbottoms"><img src="https://img.shields.io/badge/@copperbottoms-rgba(0,0,0,0)?style=flat-square" /></a> <br>
+  <a href="https://github.com/sea-sick"><img src="https://img.shields.io/badge/@sea-sick-rgba(0,0,0,0)?style=flat-square" /></a> <br>
   <a href="https://github.com/freakedoutboy"><img src="https://img.shields.io/badge/@freakedoutboy-rgba(0,0,0,0)?style=flat-square" /></a>
   <a href="https://github.com/disorderlyfashion"><img src="https://img.shields.io/badge/@disorderlyfashion-rgba(0,0,0,0)?style=flat-square" /></a>
   <a href="https://github.com/ywuamii"><img src="https://img.shields.io/badge/@ywuamii-rgba(0,0,0,0)?style=flat-square" /></a>

@@ -24,7 +24,8 @@ fyi i befriend anyone, idc what drama u have with the other person as longest as
   <table align="center"><caption>
     <tr><td align="center">
    <p align="center"> 
-     
+
+     rare and niche joymaxx
 <p align="center">
   <a href="https://github.com/rerir"><img src="https://img.shields.io/badge/@rerir-rgba(0,0,0,0)?style=flat-square&labelColor=rgba(0,0,0,0)&color=rgba(0,0,0,0)" /></a>
   <a href="https://github.com/vitriolicred"><img src="https://img.shields.io/badge/@vitriolicred-rgba(0,0,0,0)?style=flat-square&labelColor=rgba(0,0,0,0)&color=rgba(0,0,0,0)" /></a> ♡ <br> ask 2b added <br><br>
@@ -59,6 +60,7 @@ fyi i befriend anyone, idc what drama u have with the other person as longest as
  <a href="https://github.com/15chuu"><img src="https://img.shields.io/badge/@15chuu-rgba(0,0,0,0)?style=flat-square" /></a> <br>
 <a href="https://github.com/newestalbum"><img src="https://img.shields.io/badge/@newestalbum-rgba(0,0,0,0)?style=flat-square" /></a> 
 <a href="https://github.com/maapicc"><img src="https://img.shields.io/badge/@maapicc-rgba(0,0,0,0)?style=flat-square" /></a> 
+<a href="https://github.com/timejumpduo"><img src="https://img.shields.io/badge/@timejumpduo-rgba(0,0,0,0)?style=flat-square" /></a> 
 
  awards ive been put on against my will <br>
 <a href="https://github.com/pt-awards"><img src="https://img.shields.io/badge/@pt--awards-rgba(0,0,0,0)?style=flat-square&labelColor=rgba(0,0,0,0)&color=rgba(0,0,0,0)" /></a>

@@ -64,6 +64,7 @@ fyi i befriend anyone, idc what drama u have with the other person as longest as
 <a href="https://github.com/timejumpduo"><img src="https://img.shields.io/badge/@timejumpduo-rgba(0,0,0,0)?style=flat-square" /></a> 
 <a href="https://github.com/PLANETLORDD"><img src="https://img.shields.io/badge/@PLANETLORDD-rgba(0,0,0,0)?style=flat-square" /></a>  <br>
 <a href="https://github.com/ANTlHERO"><img src="https://img.shields.io/badge/@ANTlHERO-rgba(0,0,0,0)?style=flat-square" /></a> 
+<a href="https://github.com/do0mbringer"><img src="https://img.shields.io/badge/@do0mbringer-rgba(0,0,0,0)?style=flat-square" /></a> 
 
  awards ive been put on against my will <br>
 <a href="https://github.com/pt-awards"><img src="https://img.shields.io/badge/@pt--awards-rgba(0,0,0,0)?style=flat-square&labelColor=rgba(0,0,0,0)&color=rgba(0,0,0,0)" /></a>

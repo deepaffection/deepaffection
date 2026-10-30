@@ -11,7 +11,7 @@ niche and aura <br>
 
 <details>
   <summary> 
-   
+  ⸝ ⸝ extend <br>
 (♡ˊ͈ ꒳ ˋ͈) ↓↓↓ click <br>
 <a href="https://rentry.co/ptaccessories"><img src="https://img.shields.io/badge/pt accessories-rgba(0,0,0,0)?style=flat-square&labelColor=rgba(0,0,0,0)&color=rgba(0,0,0,0)" /></a> , <a href="https://rentry.co/howtotint"><img src="https://img.shields.io/badge/how to tint-rgba(0,0,0,0)?style=flat-square&labelColor=rgba(0,0,0,0)&color=rgba(0,0,0,0)" /></a> , <a href="https://rentry.co/ptskinguide"><img src="https://img.shields.io/badge/pt skin guide-rgba(0,0,0,0)?style=flat-square&labelColor=rgba(0,0,0,0)&color=rgba(0,0,0,0)" /></a>
 

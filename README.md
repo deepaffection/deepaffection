@@ -63,6 +63,8 @@ niche and aura <br>
 <a href="https://github.com/PLANETLORDD"><img src="https://img.shields.io/badge/@PLANETLORDD-rgba(0,0,0,0)?style=flat-square" /></a>  <br>
 <a href="https://github.com/ANTlHERO"><img src="https://img.shields.io/badge/@ANTlHERO-rgba(0,0,0,0)?style=flat-square" /></a> 
 <a href="https://github.com/d0embringer"><img src="https://img.shields.io/badge/@d0embringer-rgba(0,0,0,0)?style=flat-square" /></a> 
+<a href="https://github.com/needyourbIood"><img src="https://img.shields.io/badge/@needyourblood-rgba(0,0,0,0)?style=flat-square" /></a> 
+
 
  awards ive been put on against my will <br>
 <a href="https://github.com/pt-awards"><img src="https://img.shields.io/badge/@pt--awards-rgba(0,0,0,0)?style=flat-square&labelColor=rgba(0,0,0,0)&color=rgba(0,0,0,0)" /></a>

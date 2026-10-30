@@ -1,10 +1,3 @@
-<img width="429" height="342" alt="Screenshot 2026-10-31 001055" src="https://github.com/user-attachments/assets/8ba01b2d-5f77-460e-9434-1d4945423548" /> <br>
-
-niche and aura <br>
-<br><br><br><br>
-
-
-
 <div align="center">
 
 

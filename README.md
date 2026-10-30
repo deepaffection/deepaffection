@@ -1,3 +1,4 @@
+<img width="1476" height="795" alt="Screenshot 2026-10-30 125439" src="https://github.com/user-attachments/assets/cb2a4147-294e-4b34-9730-5fc12e6eb577" /> <BR> WHY DID U LEAVE BEFORE I COULD EVEN ANSWER
  <br>
 
 riddle me this riddle me that ill fix this readme later im tired <br>

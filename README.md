@@ -1,5 +1,4 @@
-<img width="1476" height="795" alt="Screenshot 2026-10-30 125439" src="https://github.com/user-attachments/assets/cb2a4147-294e-4b34-9730-5fc12e6eb577" /> <BR> WHY DID U LEAVE BEFORE I COULD EVEN ANSWER
- <br>
+<img width="429" height="342" alt="Screenshot 2026-10-31 001055" src="https://github.com/user-attachments/assets/8ba01b2d-5f77-460e-9434-1d4945423548" /> <br>
 
 riddle me this riddle me that ill fix this readme later im tired <br>
 fyi i befriend anyone, idc what drama u have with the other person as longest as it doesnt directly involve me <br>

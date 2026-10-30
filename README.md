@@ -24,7 +24,7 @@ niche and aura <br>
     <tr><td align="center">
    <p align="center"> 
 
-     (^ω^)
+    (^ω^)
 <p align="center">
   <a href="https://github.com/rerir"><img src="https://img.shields.io/badge/@rerir-rgba(0,0,0,0)?style=flat-square&labelColor=rgba(0,0,0,0)&color=rgba(0,0,0,0)" /></a>
   <a href="https://github.com/vitriolicred"><img src="https://img.shields.io/badge/@vitriolicred-rgba(0,0,0,0)?style=flat-square&labelColor=rgba(0,0,0,0)&color=rgba(0,0,0,0)" /></a> 

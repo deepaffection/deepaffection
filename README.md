@@ -12,10 +12,10 @@ niche and aura <br>
 <details>
   <summary> 
    
-(♡ˊ͈ ꒳ ˋ͈) <br>
+(♡ˊ͈ ꒳ ˋ͈) ⤷ click <br>
 
-<a href="https://github.com/prettyponycollector"><img src="https://img.shields.io/badge/@prettyponycollector-rgba(0,0,0,0)?style=flat-square&labelColor=rgba(0,0,0,0)&color=rgba(0,0,0,0)" /></a>
-⤷ click 
+<a href="https://rentry.co/ptaccessories"><img src="https://img.shields.io/badge/pt accessories-rgba(0,0,0,0)?style=flat-square&labelColor=rgba(0,0,0,0)&color=rgba(0,0,0,0)" /></a> , <a href="https://rentry.co/howtotint"><img src="https://img.shields.io/badge/how to tint-rgba(0,0,0,0)?style=flat-square&labelColor=rgba(0,0,0,0)&color=rgba(0,0,0,0)" /></a> , <a href="https://rentry.co/ptskinguide"><img src="https://img.shields.io/badge/pt skin guide-rgba(0,0,0,0)?style=flat-square&labelColor=rgba(0,0,0,0)&color=rgba(0,0,0,0)" /></a>
+
 
   </a>
 </p>
@@ -88,7 +88,7 @@ niche and aura <br>
 
 <img src="https://komarev.com/ghpvc/?username=peruere&color=5C5C5C&style=flat-square&label=⠀POPULATION⠀&base=13693">
 
-[ACCESSORIES](https://rentry.co/ptaccessories) [HOW TO TINT](https://rentry.co/howtotint) [SKIN GUIDE](https://rentry.co/ptskinguide)<br> <br>
+
 
 ⠀⠀ 
 <br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br>

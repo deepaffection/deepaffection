@@ -7,9 +7,9 @@
       <td>
         <div align="center">
           <br> 
-          <img width="364" height="150" alt="trewsedrftghyytr" src="https://github.com/user-attachments/assets/f683302a-3b07-4492-b5cf-e8c0351ed7c1" />
+          <img width="364" height="150" alt="trewsedrftghyytr" src="https://github.com/user-attachments/assets/f683302a-3b07-4492-b5cf-e8c0351ed7c1" /> <br> <br>
 <details>
-  <summary> 
+  <summary>  
   ⸝ ⸝ extend <br>
 (♡ˊ͈ ꒳ ˋ͈) ↓↓↓ click <br>
 <a href="https://rentry.co/ptaccessories"><img src="https://img.shields.io/badge/pt accessories-rgba(0,0,0,0)?style=flat-square&labelColor=rgba(0,0,0,0)&color=rgba(0,0,0,0)" /></a> , <a href="https://rentry.co/howtotint"><img src="https://img.shields.io/badge/how to tint-rgba(0,0,0,0)?style=flat-square&labelColor=rgba(0,0,0,0)&color=rgba(0,0,0,0)" /></a> , <a href="https://rentry.co/ptskinguide"><img src="https://img.shields.io/badge/pt skin guide-rgba(0,0,0,0)?style=flat-square&labelColor=rgba(0,0,0,0)&color=rgba(0,0,0,0)" /></a>

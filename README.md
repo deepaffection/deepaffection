@@ -1,5 +1,5 @@
 <div align="center">
-  shig<a href="https://github.com/deepaffection"><img src="https://img.shields.io/badge/or niko-rgba(0,0,0,0)?style=flat-square&labelColor=rgba(0,0,0,0)&color=rgba(0,0,0,0)" /></a>  𓏻𓏻 PL <br> <a href="https://github.com/deepaffection"><img src="https://img.shields.io/badge/she / he-rgba(0,0,0,0)?style=flat-square&labelColor=rgba(0,0,0,0)&color=rgba(0,0,0,0)" /></a>
+  shig<a href="https://github.com/deepaffection"><img src="https://img.shields.io/badge/or niko-rgba(0,0,0,0)?style=flat-square&labelColor=rgba(0,0,0,0)&color=rgba(0,0,0,0)" /></a>  <a href="https://github.com/deepaffection"><img src="https://img.shields.io/badge/𖹭-rgba(0,0,0,0)?style=flat-square&labelColor=rgba(0,0,0,0)&color=rgba(0,0,0,0)" /></a>,  𖹭 <br> <a href="https://github.com/deepaffection"><img src="https://img.shields.io/badge/she / he-rgba(0,0,0,0)?style=flat-square&labelColor=rgba(0,0,0,0)&color=rgba(0,0,0,0)" /></a>
 <img src="https://komarev.com/ghpvc/?username=peruere&color=5C5C5C&style=flat-square&label=⠀views⠀&base=13693">
 
   <table>
@@ -10,7 +10,7 @@
           <img width="364" height="150" alt="trewsedrftghyytr" src="https://github.com/user-attachments/assets/f683302a-3b07-4492-b5cf-e8c0351ed7c1" /> <br> <br>
 <details>
   <summary>
- click to <a href="https://github.com/deepaffection"><img src="https://img.shields.io/badge/extend-rgba(0,0,0,0)?style=flat-square&labelColor=rgba(0,0,0,0)&color=rgba(0,0,0,0)" /></a> 
+
   </a>
 </p>
 </summary>

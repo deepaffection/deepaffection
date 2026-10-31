@@ -56,13 +56,13 @@
   <a href="https://github.com/methodreal"><img src="https://img.shields.io/badge/methodreal-rgba(0,0,0,0)?style=flat-square" /></a>
   <a href="https://github.com/yaoiliker"><img src="https://img.shields.io/badge/yaoiliker-rgba(0,0,0,0)?style=flat-square" /></a> 
    <a href="https://github.com/eddisode"><img src="https://img.shields.io/badge/eddisode-rgba(0,0,0,0)?style=flat-square" /></a> 
- <a href="https://github.com/15chuu"><img src="https://img.shields.io/badge/15chuu-rgba(0,0,0,0)?style=flat-square" /></a> <br>
+ <a href="https://github.com/15chuu"><img src="https://img.shields.io/badge/15chuu-rgba(0,0,0,0)?style=flat-square" /></a> <br> 
+  <a href="https://github.com/wubism"><img src="https://img.shields.io/badge/wubism-rgba(0,0,0,0)?style=flat-square" /></a>
+  <a href="https://github.com/100bottlesofglue"><img src="https://img.shields.io/badge/100bottlesofglue-rgba(0,0,0,0)?style=flat-square" /></a>
+  <a href="https://github.com/nezoshokii"><img src="https://img.shields.io/badge/nezoshokii-rgba(0,0,0,0)?style=flat-square" /></a> <br>
 <a href="https://github.com/ANTlHERO"><img src="https://img.shields.io/badge/ANTIHERO-rgba(0,0,0,0)?style=flat-square" /></a> 
 <a href="https://github.com/d0embringer"><img src="https://img.shields.io/badge/d0embringer-rgba(0,0,0,0)?style=flat-square" /></a> 
   <a href="https://github.com/robinspins"><img src="https://img.shields.io/badge/robinspins-rgba(0,0,0,0)?style=flat-square" /></a> <br> 
-  <a href="https://github.com/wubism"><img src="https://img.shields.io/badge/wubism-rgba(0,0,0,0)?style=flat-square" /></a>
-  <a href="https://github.com/100bottlesofglue"><img src="https://img.shields.io/badge/100bottlesofglue-rgba(0,0,0,0)?style=flat-square" /></a>
-  <a href="https://github.com/nezoshokii"><img src="https://img.shields.io/badge/nezoshokii-rgba(0,0,0,0)?style=flat-square" /></a> <br> <br>
 <a href="https://github.com/prettyponycollector"><img src="https://img.shields.io/badge/ask t2b added-rgba(0,0,0,0)?style=flat-square&labelColor=rgba(0,0,0,0)&color=rgba(0,0,0,0)" /></a>
 
      
@@ -74,13 +74,12 @@
 <a href="https://rentry.co/github-tierlist"><img src="https://img.shields.io/badge/@github--tierlist-rgba(0,0,0,0)?style=flat-square&labelColor=rgba(0,0,0,0)&color=rgba(0,0,0,0)" /></a> <br>
 <a href="https://github.com/pt-walk-of-fame"><img src="https://img.shields.io/badge/@pt--walk--of--fame-rgba(0,0,0,0)?style=flat-square&labelColor=rgba(0,0,0,0)&color=rgba(0,0,0,0)" /></a>
 <a href="https://github.com/prettyponycollector"><img src="https://img.shields.io/badge/@prettyponycollector-rgba(0,0,0,0)?style=flat-square&labelColor=rgba(0,0,0,0)&color=rgba(0,0,0,0)" /></a>
-
 </p>
             </p>
     </td></tr></caption></table>
   </details>
 ────────────────────────────────
 </table>
-⠀⠀ 
+
 <br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br>
 

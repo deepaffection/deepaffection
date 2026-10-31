@@ -10,7 +10,7 @@
           <img width="364" height="150" alt="trewsedrftghyytr" src="https://github.com/user-attachments/assets/f683302a-3b07-4492-b5cf-e8c0351ed7c1" /> <br> <br>
 <details>
   <summary>
-
+⋮⋮⋮⋮⋮⋮
   </a>
 </p>
 </summary>

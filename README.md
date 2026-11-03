@@ -83,7 +83,8 @@
 ──────────────────────────────── <br>
 <a href="https://rentry.co/ptaccessories"><img src="https://img.shields.io/badge/pt accessories-rgba(0,0,0,0)?style=flat-square&labelColor=rgba(0,0,0,0)&color=rgba(0,0,0,0)" /></a> , <a href="https://rentry.co/howtotint"><img src="https://img.shields.io/badge/how to tint-rgba(0,0,0,0)?style=flat-square&labelColor=rgba(0,0,0,0)&color=rgba(0,0,0,0)" /></a> , <a href="https://rentry.co/ptskinguide"><img src="https://img.shields.io/badge/pt skin guide-rgba(0,0,0,0)?style=flat-square&labelColor=rgba(0,0,0,0)&color=rgba(0,0,0,0)" /></a>
 </table>
-
+<br> who want dat <br>
+<img width="1280" height="374" alt="Screenshot 2026-11-03 210851" src="https://github.com/user-attachments/assets/16e4266e-38bc-4b32-b24b-4610d108d1e8" />
 
 <br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br>
 

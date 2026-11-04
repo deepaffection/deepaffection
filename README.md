@@ -1,5 +1,27 @@
 
+
 <div align="center">
+  
+<div align="center">
+<br>
+  
+<table align="center">
+<caption></caption>
+  
+<tr>
+<td align="center">
+# <a href="https://southpark.atabook.org/"><img src="https://img.shields.io/badge/click to suggest accessory ideas for -rgba(0,0,0,0)?style=flat-square&labelColor=rgba(0,0,0,0)&color=rgba(0,0,0,0)" /></a> .co/ptaccessories
+</td>
+</tr>
+  
+<tr>
+<td align="center">
+# ⠀ <sub> keep in mind not everything is possible ⠀  </sub> ill update it sometime 
+</td>
+</tr>
+</table>
+ 
+
 
   shig<a href="https://github.com/deepaffection"><img src="https://img.shields.io/badge/or niko-rgba(0,0,0,0)?style=flat-square&labelColor=rgba(0,0,0,0)&color=rgba(0,0,0,0)" /></a>  <a href="https://github.com/deepaffection"><img src="https://img.shields.io/badge/𖹭-rgba(0,0,0,0)?style=flat-square&labelColor=rgba(0,0,0,0)&color=rgba(0,0,0,0)" /></a>,  𖹭 <br> <a href="https://github.com/deepaffection"><img src="https://img.shields.io/badge/she / he-rgba(0,0,0,0)?style=flat-square&labelColor=rgba(0,0,0,0)&color=rgba(0,0,0,0)" /></a>
 <img src="https://komarev.com/ghpvc/?username=peruere&color=5C5C5C&style=flat-square&label=⠀views⠀&base=13693"> <br> everything below is clickable ──────────────────

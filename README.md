@@ -7,7 +7,7 @@
       <td>
         <div align="center">
           
-  # direct urself to rentry.co/ptaccessories
+  # #1k gg fckn ez
 <a href="https://rentry.co/ptaccessories"><img src="https://img.shields.io/badge/click - > rentry.co/ptaccessories -rgba(0,0,0,0)?style=flat-square&labelColor=rgba(0,0,0,0)&color=rgba(0,0,0,0)" /></a>
 </table>
 

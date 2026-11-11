@@ -61,14 +61,16 @@
 <a href="https://github.com/newestalbum"><img src="https://img.shields.io/badge/newestalbum-rgba(0,0,0,0)?style=flat-square" /></a> 
 <a href="https://github.com/chick-habit"><img src="https://img.shields.io/badge/chick--habit-rgba(0,0,0,0)?style=flat-square" /></a> 
 <a href="https://github.com/robinspins"><img src="https://img.shields.io/badge/robinspins-rgba(0,0,0,0)?style=flat-square" /></a> <br>
+<a href="https://github.com/sea-sick"><img src="https://img.shields.io/badge/sea--sick-rgba(0,0,0,0)?style=flat-square" /></a> 
+<a href="https://github.com/fuziyamas"><img src="https://img.shields.io/badge/fuziyamas-rgba(0,0,0,0)?style=flat-square" /></a> 
+<a href="https://github.com/flankeee"><img src="https://img.shields.io/badge/flankeee-rgba(0,0,0,0)?style=flat-square" /></a> 
+<a href="https://github.com/wubism"><img src="https://img.shields.io/badge/wubism-rgba(0,0,0,0)?style=flat-square" /></a> 
+<a href="https://github.com/yvoisen"><img src="https://img.shields.io/badge/yvoisen-rgba(0,0,0,0)?style=flat-square" /></a> <br>
 <a href="https://github.com/orcapaint"><img src="https://img.shields.io/badge/orcapaint-rgba(0,0,0,0)?style=flat-square" /></a> 
 <a href="https://github.com/nezoshokii"><img src="https://img.shields.io/badge/nezoshokii-rgba(0,0,0,0)?style=flat-square" /></a> 
 <a href="https://github.com/edenscram"><img src="https://img.shields.io/badge/edenscram-rgba(0,0,0,0)?style=flat-square" /></a> 
 <a href="https://github.com/methodreal"><img src="https://img.shields.io/badge/methodreal-rgba(0,0,0,0)?style=flat-square" /></a> <br>
-<a href="https://github.com/sea-sick"><img src="https://img.shields.io/badge/sea--sick-rgba(0,0,0,0)?style=flat-square" /></a> 
-<a href="https://github.com/fuziyamas"><img src="https://img.shields.io/badge/fuziyamas-rgba(0,0,0,0)?style=flat-square" /></a> 
-<a href="https://github.com/flankeee"><img src="https://img.shields.io/badge/flankeee-rgba(0,0,0,0)?style=flat-square" /></a> 
-<a href="https://github.com/wubism"><img src="https://img.shields.io/badge/wubism-rgba(0,0,0,0)?style=flat-square" /></a> <br>
+
 
      
     awards
